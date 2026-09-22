@@ -1,1 +1,1 @@
-# exercicios-pw3-2026
+# Nickolas de Souza e Giulia Souza
